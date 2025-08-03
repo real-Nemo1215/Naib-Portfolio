@@ -1,0 +1,1 @@
+This website serves as a portfolio site for Mohammad Naib. All of the content and resources used in this website shall not be used again elsewhere, and no content from here shall be copied anywhere else. 
